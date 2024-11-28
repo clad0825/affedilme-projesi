@@ -73,3 +73,6 @@
     </script>
 </body>
 </html>
+
+
+bu kod tamamen clad0825'e aittir discord hesabı clad0825 instagram hesabı hz.clad olarak geçmektedir eğer bu kodu izinsiz kullanan olursa sonuçları olucağı konusunda herkesi uyarırım...kodumu alıp kullanabilirsiniz ama sizin olduğunu söylemeyin lütfen...sevgilerle!
